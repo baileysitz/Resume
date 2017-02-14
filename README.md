@@ -3,7 +3,8 @@
 
 
 ##EXPERIENCE 
-###BROADWAY GARDENS | SUMMER 2016
+####BROADWAY GARDENS  
+SUMMER 2016
 >Process payment by cash, credit, or gift card as well as opening and closing of register. Answer questions regarding products and maintain current knowledge on constantly changing plant selection. Suggest items based on customer’s specific needs and advice based on their plants and their required upkeep. Learning new skills on plant care and the intricacies of gardening and landscaping.
 
 ####AMY ALWARD AGENCY | MAY 2015 - MAR 2016
