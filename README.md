@@ -4,6 +4,7 @@
 
 
 ##EDUCATION & CERTIFICATION
+```
 ####Southern Maine Community College  
  Current student studying computer science. 
 
@@ -21,4 +22,4 @@ One year studying Captive Wildlife Care and Education.
 
 ####Carrabassett Valley Academy  
 High school diploma.  
-
+```
