@@ -4,9 +4,9 @@
 
 
 ##EDUCATION & CERTIFICATION
->####Southern Maine Community College 
+####Southern Maine Community College 
 > Current student studying computer science. 
-> 
->####Property and Casualty license   
+
+####Property and Casualty license   
 > Selling insurance in the state of Maine. 
 
