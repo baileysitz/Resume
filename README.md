@@ -1,4 +1,4 @@
-# BAILEY SITZ  
+# BAILEY SITZ
 ######Portland, Maine | baileysitz@gmail.com | 207-491-3213
 
 
