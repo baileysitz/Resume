@@ -11,9 +11,11 @@
 
 
 ##SKILLS 
- * Quick learner, creative problem solving. 
- * Extensive computer and typing skills. 
- * Years of customer service experience. 
+> * Quick learner, creative problem solving. 
+> * Extensive computer and typing skills. 
+> * Years of customer service experience. 
+> * Self taught HTML & CSS. 
+> * 
 
 
 ##EDUCATION & CERTIFICATION
