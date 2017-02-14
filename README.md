@@ -21,13 +21,13 @@ SUMMER 2016
 > _Selling insurance in the state of Maine._ 
 
 >**Wilderness First Responder Certification**  
->Wilderness Medical Associates. 
+> _Wilderness Medical Associates._ 
 
 >**PSIA Ski Instructor Certification**  
->Level 1 and Children's Specialist. 
+> _Level 1 and Children's Specialist._
 
 >**Unity College**  
-> One year studying Captive Wildlife Care and Education.  
+> _One year studying Captive Wildlife Care and Education._ 
 
 >**Carrabassett Valley Academy**  
-> High school diploma.  
+> _High school diploma._ 
