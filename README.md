@@ -16,9 +16,9 @@
 >**PSIA Ski Instructor Certification**  
 >Level 1 and Children's Specialist. 
 
-**Unity College**  
-One year studying Captive Wildlife Care and Education.  
+>**Unity College**  
+> One year studying Captive Wildlife Care and Education.  
 
-**Carrabassett Valley Academy**  
- High school diploma.  
+>**Carrabassett Valley Academy**  
+> High school diploma.  
 
