@@ -4,22 +4,21 @@
 
 
 ##EDUCATION & CERTIFICATION
-```
-####Southern Maine Community College  
- Current student studying computer science. 
+>**Southern Maine Community College**  
+> _Current student studying computer science._
 
-####Property and Casualty license  
- Selling insurance in the state of Maine. 
+>**Property and Casualty license**  
+> _Selling insurance in the state of Maine._ 
 
-####Wilderness First Responder Certification  
-Wilderness Medical Associates. 
+>**Wilderness First Responder Certification**  
+>Wilderness Medical Associates. 
 
-####PSIA Ski Instructor Certification  
- Level 1 and Children's Specialist. 
+>**PSIA Ski Instructor Certification**  
+>Level 1 and Children's Specialist. 
 
-####Unity College  
+**Unity College**  
 One year studying Captive Wildlife Care and Education.  
 
-####Carrabassett Valley Academy  
-High school diploma.  
-```
+**Carrabassett Valley Academy**  
+ High school diploma.  
+
