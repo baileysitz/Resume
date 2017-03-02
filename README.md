@@ -2,20 +2,11 @@
 ######Portland, Maine | baileysitz@gmail.com | 207-491-3213
 
 
-##EXPERIENCE 
-####BROADWAY GARDENS | SUMMER 2016
->Process payment by cash, credit, or gift card as well as opening and closing of register. Answer questions regarding products and maintain current knowledge on constantly changing plant selection. Suggest items based on customer’s specific needs and advice based on their plants and their required upkeep. Learning new skills on plant care and the intricacies of gardening and landscaping.
-
-####AMY ALWARD AGENCY | MAY 2015 - MAR 2016
->Licensed insurance agent at Allstate’s number one ‘Best In Company’ 2015. Required speed, attention to detail, customer service, multitasking and problem solving skills. Interviewed clients to customize insurance products to cater to individual needs and risks. Maintain a professional demeanor in person, over the phone, and through email. Gained sale and networking skills in order to develop new clientele.
-
-
 ##SKILLS 
 > * Quick learner, creative problem solving. 
 > * Extensive computer and typing skills. 
 > * Years of customer service experience. 
 > * Self taught HTML & CSS. 
-> * 
 
 
 ##EDUCATION & CERTIFICATION
@@ -36,3 +27,18 @@
 
 >**Carrabassett Valley Academy**  
 > _High school diploma._ 
+
+
+
+
+##EXPERIENCE 
+####INSURANCE AGENT
+>Being an insurance agent taught me speed, attention to detail, customer service skills, multitasking and problem solving. Required knowledge of multiple quoting systems and the ability to operate them simultaneously. Gained sales and networking skills in order to develop new clientele, interviewed clients to customize insurance products to cater to individual needs and risks. Maintained healthy office environment by being communicative, productive, and professional. 
+> * AMY ALWARD AGENCY | PORTLAND, ME
+
+####SERVER & BARTENDER
+>My work in the service industry has taught me to perform under pressure in a fast-paced, high-stress environment without compromising customer service. I developed memorization skills, attention to detail, and time management while going about daily responsibilities. Serving a high volume of customers taught me to juggle multiple projects at once while quickly and concisely prioritizing tasks to maximize time and productivity. Learned to anticipate customers needs and developed sales skills while making recommendations and pairings. 
+
+####INSTRUCTOR
+>Teaching children at various ages, skill levels, and group sizes how to ski for eight consecutive winters. Learned hoe to be an effective team leader, organized group management, and interpersonal skills. Trained new instructors on company safety protocol as well as passing on teaching techniques, games, and the importance of clear instruction.
+
