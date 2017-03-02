@@ -35,18 +35,23 @@
 ####INSURANCE AGENT
 >Being an insurance agent taught me speed, attention to detail, customer service skills, multitasking and problem solving. Required knowledge of multiple quoting systems and the ability to operate them simultaneously. Gained sales and networking skills in order to develop new clientele, interviewed clients to customize insurance products to cater to individual needs and risks. Maintained healthy office environment by being communicative, productive, and professional. 
 >
-> Amy Alward Agency | Portland, ME
+> * **Amy Alward Agency | Portland, ME** - Agency Allstate's 'Best in Company' 2015 
 
 ####SERVER & BARTENDER
->My work in the service industry has taught me to perform under pressure in a fast-paced, high-stress environment without compromising customer service. I developed memorization skills, attention to detail, and time management while going about daily responsibilities. Serving a high volume of customers taught me to juggle multiple projects at once while quickly and concisely prioritizing tasks to maximize time and productivity. Learned to anticipate customers needs and developed sales skills while making recommendations and pairings. 
+>My work in the service industry has taught me to perform under pressure in a fast-paced, high-stress environment without compromising customer service. I developed memorization skills, attention to detail, and time management while going about daily responsibilities. Serving a high volume of customers taught me to juggle multiple projects at once while quickly and concisely prioritizing tasks to maximize time and productivity. Learned to anticipate customers needs and developed sales skills while making recommendations and pairings.
+>
+> * **Portland Pie Company | Portland, ME** - Casual but busy pizza restaurant and sports bar. 
 > 
 > * **High West Saloon | Park City, UT** - Saloon and distillery that featured a variety of whiskeys made by the same company. 
 >
-> * **Mine Oyster Restaurant – Boothbay, ME** - Busy restaurant on the water that features an extensive raw oyster selection and sushi menu. 
+> * **Mine Oyster Restaurant | Boothbay, ME** - Busy restaurant on the water that features an extensive raw oyster selection and sushi menu. 
 >
->* **Tufulios Restaurant – Carrabassett Valley, ME** - Small Italian restaurant known for their creative daily specials. 
+> * **Tufulios Restaurant | Carrabassett Valley, ME** - Small Italian restaurant known for their creative daily specials. 
 
 
 ####INSTRUCTOR
->Teaching children at various ages, skill levels, and group sizes how to ski for eight consecutive winters. Learned hoe to be an effective team leader, organized group management, and interpersonal skills. Trained new instructors on company safety protocol as well as passing on teaching techniques, games, and the importance of clear instruction.
+>Teaching children at various ages, skill levels, and group sizes how to ski for eight consecutive winters. Learned hoe to be an effective team leader, organized group management, and interpersonal skills. Worked with students to develop and achive personal goals. Trained new instructors on company safety protocol as well as passing on teaching techniques, games, and the importance of clear instruction.
+> 
+> * **Sugarloaf Mountain Resort | Carrabessett Valley, ME** - Worked seven seasons at the biggest mountain east of the Rockies. Won 'rookie of the year' my first winter and received a pin in recognition of five years of years work well done. 
+> * **Canyons Resort | Park City, UT** - 
 
