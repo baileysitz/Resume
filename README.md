@@ -40,14 +40,11 @@
 ####SERVER & BARTENDER
 >My work in the service industry has taught me to perform under pressure in a fast-paced, high-stress environment without compromising customer service. I developed memorization skills, attention to detail, and time management while going about daily responsibilities. Serving a high volume of customers taught me to juggle multiple projects at once while quickly and concisely prioritizing tasks to maximize time and productivity. Learned to anticipate customers needs and developed sales skills while making recommendations and pairings. 
 > 
->High West Saloon | Park City, UT 
->Saloon and distillery that featured a variety of whiskeys made by the same company. 
+> * **High West Saloon | Park City, UT** - Saloon and distillery that featured a variety of whiskeys made by the same company. 
 >
->Mine Oyster Restaurant – Boothbay, ME
->Busy restaurant that features an extensive raw oyster selection and sushi menu. 
+> * **Mine Oyster Restaurant – Boothbay, ME** - Busy restaurant on the water that features an extensive raw oyster selection and sushi menu. 
 >
->Tufulios Restaurant – Carrabassett Valley, ME 
->Small Italian restaurant that 
+>* **Tufulios Restaurant – Carrabassett Valley, ME** - Small Italian restaurant known for their creative daily specials. 
 
 
 ####INSTRUCTOR
