@@ -12,7 +12,7 @@
 > * 
 
 
->
+
 ##EDUCATION & CERTIFICATION
 >**Southern Maine Community College**  
 > _Current student studying computer science._
