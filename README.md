@@ -2,20 +2,15 @@
 ######Portland, Maine | baileysitz@gmail.com | 207-491-3213
 
 
-##EXPERIENCE 
-####BROADWAY GARDENS | SUMMER 2016
->Process payment by cash, credit, or gift card as well as opening and closing of register. Answer questions regarding products and maintain current knowledge on constantly changing plant selection. Suggest items based on customer’s specific needs and advice based on their plants and their required upkeep. Learning new skills on plant care and the intricacies of gardening and landscaping.
-
-####AMY ALWARD AGENCY | MAY 2015 - MAR 2016
->Licensed insurance agent at Allstate’s number one ‘Best In Company’ 2015. Required speed, attention to detail, customer service, multitasking and problem solving skills. Interviewed clients to customize insurance products to cater to individual needs and risks. Maintain a professional demeanor in person, over the phone, and through email. Gained sale and networking skills in order to develop new clientele.
-
 
 ##SKILLS 
-> * Quick learner, creative problem solving. 
-> * Extensive computer and typing skills. 
-> * Years of customer service experience. 
 > * Self taught HTML & CSS. 
+> * Analytical and problem solving mindset with strong attention to detail. 
+> * Extensive typing skills (average of 65 words per minute). 
+> * Quick and enthusastic learner, eager to drive for imporvement. 
+> * Communication and leadership skills. 
 > * 
+
 
 
 ##EDUCATION & CERTIFICATION
@@ -36,3 +31,34 @@
 
 >**Carrabassett Valley Academy**  
 > _High school diploma._ 
+
+
+
+
+##EXPERIENCE 
+####INSURANCE AGENT
+>Being an insurance agent taught me speed, attention to detail, customer service skills, multitasking and problem solving. Required knowledge of multiple quoting systems and the ability to operate them simultaneously. Gained sales and networking skills in order to develop new clientele, interviewed clients to customize insurance products to cater to individual needs and risks. Maintained healthy office environment by being communicative, productive, and professional. 
+>
+> * **Amy Alward Agency | Portland, ME** - Agency won Allstate's 'Best in Company' 2015 
+
+####SERVER & BARTENDER
+>My work in the service industry has taught me to perform under pressure in a fast-paced, high-stress environment without compromising customer service. I developed memorization skills, attention to detail, and time management while going about daily responsibilities. Serving a high volume of customers instilled the ability to juggle multiple projects at once while quickly and concisely prioritizing tasks to maximize time and productivity. Learned to anticipate customers needs and developed sales skills while making recommendations and pairings.
+>
+> * **Portland Pie Company | Portland, ME** - Casual but busy pizza restaurant and sports bar. 
+> * **High West Saloon | Park City, UT** - Gostro-distillery that featured the whiskys and vodka made by the company.
+> * **Mine Oyster Restaurant | Boothbay, ME** - Busy restaurant on the water that features an extensive raw oyster selection and sushi menu.
+> * **Tufulios Restaurant | Carrabassett Valley, ME** - Small Italian restaurant known for their creative daily specials. 
+
+
+####INSTRUCTOR
+>Teaching children at various ages, skill levels and group sizes how to ski for eight consecutive winters. I gained skills in effective team leadership, organized group management, and interpersonal skills. Worked with students to develop and achive personal goals. Trained new instructors on company safety protocols as well as passing on teaching techniques, games, and communication tricks.
+> 
+> * **Canyons Resort | Park City, UT** - Insutructed advanced skiing to children at one of Park City's acclaimed ski resorts. 
+> * **Sugarloaf Mountain Resort | Carrabessett Valley, ME** - Worked seven seasons at the biggest mountain east of the Rockies. Won 'rookie of the year' my first winter and received a pin in recognition of five years of years service. 
+
+####RETAIL ASSOCIATE 
+>I facilitated packaging and shipping of expensive art and sculpture pieces when requested. Contributed to store’s social media presence on Instagram and Facebook by posting pictures depicting new items in stock and highlighting services available to customers.  Required cash-handling accuracy, detailed knowledge of products in stock, and ability to make suggestions based on customer’s needs.  
+> 
+> * **Broadway Gardens | Portland, ME** – Maintained knowledge of constantly changing selection of houseplants, annuals, perennials, shrubs and trees and their respective locations within grounds and dozen greenhouses. 
+> * **Abacus Gallery | Boothbay, ME** – Small store selling unique crafts and jewelry and features prints, canvas, and calendar of art from local artist. 
+
