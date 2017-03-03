@@ -59,3 +59,9 @@
 > * **Canyons Resort | Park City, UT** - Insutructed advanced skiing to children at one of Park City's acclaimed ski resorts. 
 > * **Sugarloaf Mountain Resort | Carrabessett Valley, ME** - Worked seven seasons at the biggest mountain east of the Rockies. Won 'rookie of the year' my first winter and received a pin in recognition of five years of years service. 
 
+####RETAIL 
+>Facilitated packaging and shipping of expensive art and sculpture pieces when requested. Contributed to store’s social media presence on Instagram and Facebook by posting pictures depicting new items in stock and highlighting services available to customers.  Required cash-handling accuracy, detailed knowledge of products in stock, and ability to make suggestions based on customer’s needs.  
+> 
+> * **Broadway Gardens | Portland, ME** – Maintained knowledge of constantly changing selection of houseplants, annuals, perennials, shrubs and trees and their respective locations within grounds and dozen greenhouses. 
+> * **Abacus Gallery | Boothbay, ME** – Small store selling unique crafts and jewelry and features prints, canvas, and calendar of art from local artist. 
+
