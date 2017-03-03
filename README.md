@@ -45,11 +45,8 @@
 >My work in the service industry has taught me to perform under pressure in a fast-paced, high-stress environment without compromising customer service. I developed memorization skills, attention to detail, and time management while going about daily responsibilities. Serving a high volume of customers taught me to juggle multiple projects at once while quickly and concisely prioritizing tasks to maximize time and productivity. Learned to anticipate customers needs and developed sales skills while making recommendations and pairings.
 >
 > * **Portland Pie Company | Portland, ME** - Casual but busy pizza restaurant and sports bar. 
-> 
-> * **High West Saloon | Park City, UT** - Gostro-distillery that featured the whiskys and vodka made by the company. 
->
-> * **Mine Oyster Restaurant | Boothbay, ME** - Busy restaurant on the water that features an extensive raw oyster selection and sushi menu. 
->
+> * **High West Saloon | Park City, UT** - Gostro-distillery that featured the whiskys and vodka made by the company.
+> * **Mine Oyster Restaurant | Boothbay, ME** - Busy restaurant on the water that features an extensive raw oyster selection and sushi menu.
 > * **Tufulios Restaurant | Carrabassett Valley, ME** - Small Italian restaurant known for their creative daily specials. 
 
 
