@@ -67,6 +67,7 @@
 
 ##REFRENCES 
 >**Anne Applin**  
+####ANNE APPLIN
 >aapplin@smccme.edu  
 >Associate Professor  
 >Computer and Information Sciences  
