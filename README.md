@@ -62,3 +62,17 @@
 > * **Broadway Gardens | Portland, ME** – Maintained knowledge of constantly changing selection of houseplants, annuals, perennials, shrubs and trees and their respective locations within grounds and dozen greenhouses. 
 > * **Abacus Gallery | Boothbay, ME** – Small store selling unique crafts and jewelry and features prints, canvas, and calendar of art from local artist. 
 
+
+
+
+##REFRENCES 
+>**Anne Applin**
+>aapplin@smccme.edu
+>Associate Professor
+>Computer and Information Sciences
+>Southern Maine Community College
+>
+>**Kshanti Greene**
+>Adjunct Professor
+>Computer Science
+>Southern Maine Community College
