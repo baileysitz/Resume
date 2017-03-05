@@ -66,13 +66,13 @@
 
 
 ##REFRENCES 
->**Anne Applin**
->aapplin@smccme.edu
->Associate Professor
->Computer and Information Sciences
+>**Anne Applin**  
+>aapplin@smccme.edu  
+>Associate Professor  
+>Computer and Information Sciences  
 >Southern Maine Community College
 >
->**Kshanti Greene**
->Adjunct Professor
->Computer Science
->Southern Maine Community College
+>**Kshanti Greene**  
+>Adjunct Professor  
+>Computer Science  
+>Southern Maine Community College  
