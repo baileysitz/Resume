@@ -72,7 +72,7 @@
 >Computer and Information Sciences  
 >Southern Maine Community College
 >
->**KSHANTI GREENE**
+>**KSHANTI GREENE**  
 >kgreene@smccme.edu  
 >Adjunct Professor  
 >Computer Science  
